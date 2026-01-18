@@ -1,5 +1,5 @@
 # 💫 About Me:
-*Cursei o ensino médio com habilitação técnica em Desenvolvimento de Sistemas na Etec de Itaquaquecetuba.*<br>Curso: Desenvolvimento de Sistemas.<br><br>Série: 2° Médio Técnico.<br><br>Objetivo: Pretendo aprender e ganhar experiência em minha futura <br>área de trabalho.  Gostaria de receber feedbacks e correções.<br><br>Experiências: Tenho experiência em diversas áreas da tecnologia apresentadas<br>pela Etec de Itaquaquecetuba. Participei de um Hakaton da Solana como um estudante do grupo Keep Bored Academy .<br>Acompanho aulas do grupo Keep Bored Academy sobre blockchain e Web3.<br><br>
+*Cursei o ensino médio com habilitação técnica em Desenvolvimento de Sistemas na Etec de Itaquaquecetuba.*<br>Curso: Desenvolvimento de Sistemas.<br><br>Objetivo: Pretendo aprender e ganhar experiência em minha futura <br>área de trabalho.  Gostaria de receber feedbacks e correções.<br><br>Experiências: Tenho experiência em diversas áreas da tecnologia apresentadas<br>pela Etec de Itaquaquecetuba. Participei de um Hakaton da Solana como um estudante do grupo Keep Bored Academy .<br>Acompanho aulas do grupo Keep Bored Academy sobre blockchain e Web3.<br><br>
 
 
 ## 🌐 Socials:
